@@ -1,0 +1,3 @@
+# Pinkbags_Ctg
+
+Bolsos
